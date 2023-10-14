@@ -1,2 +1,0 @@
-# Albaniyyala
-About learning 
